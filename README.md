@@ -4,4 +4,4 @@
 　　　꒰ა/　|っ✄　https://care.pooftie.me ‌ ꒱\
 　　　⊂____u\
   \
-<img width="400" height="230" src="https://i.imgur.com/EURb6Vy.gif">
+<img width="400" height="230" src="https://middlepot.com/img/care.gif">
