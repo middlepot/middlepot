@@ -4,4 +4,4 @@
 ꒰ა/　|っ✄　2006.𝑝𝑜𝑜𝑓𝑡𝑖𝑒.𝑚𝑒 ♡ ‌ ꒱\
 ⊂____u\
   \
-<img width="420" height="320" src="https://middlepot.com/img/softness.gif">
+<img width="420" height="320" src="https://github.com/middlepot/middlepot/blob/main/2006.gif?raw=true">
